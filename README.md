@@ -1,10 +1,8 @@
-## Opa!
+## Opa Opa Opa!
 Olá meus tuffs!
 
 
-
-![the-shining-creepy](https://github.com/user-attachments/assets/1086d9c5-f165-4b92-bd98-fc3e4e1c1cfc)
-
+![polnareff-polnareff-jojo](https://github.com/user-attachments/assets/a790b587-a95b-4c1f-a940-e2a32143101d)
 
 
 <!--
