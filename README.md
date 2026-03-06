@@ -5,6 +5,8 @@ Olá meus tuffs!
 
 ![the-shining-creepy](https://github.com/user-attachments/assets/1086d9c5-f165-4b92-bd98-fc3e4e1c1cfc)
 
+
+
 <!--
 **MyFunnyValentineD4C/MyFunnyValentineD4C** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
